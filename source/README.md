@@ -4,4 +4,4 @@
 
 创新的成功与否不在于是否新颖、巧妙亦或具有科学内涵，而在于能否赢得市场并为客户创造出新的价值。 ——彼得 德鲁克
 
-![](http://www.golden-book.com/ProductImage/090801-090815/711128065.jpg
+![](http://www.golden-book.com/ProductImage/090801-090815/711128065.jpg)
